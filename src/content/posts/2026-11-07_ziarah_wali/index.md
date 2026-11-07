@@ -139,6 +139,7 @@ Daya tarik utama dari Asta Tinggi selain nilai spiritualnya adalah kemegahan vis
 - **Kubah Makam Berwarna-warni**: Kompleks makam ini tidak terasa suram, melainkan tampak indah berkat bangunan kubah (kubah pangeran) bercat kuning dan hijau cerah yang bergaya khas bangunan keraton.
 
 ## 7. Makam Sayyid Yusuf
+![Makam Sayyid Yusuf](./mdr3.jpg)
 Ini merupakan Tujuan Terakhir saat Ziarah Wali ke Madura, untuk sampai ke makam ini tentu kalian harus naik kapal supaya sampai ke makam nya. 
 
 Setelah naik kapan kalian harus naik becak motor untuk menuju makam nya, karena tempat nya masih jauh dari pelabuhan. 
@@ -157,7 +158,7 @@ Di Pulau Poteran, Kecamatan Talango, Kabupaten Sumenep, terdapat makam yang pali
 Jika Anda ingin mengetahui rute penyeberangan perahu dari Pelabuhan Kalianget menuju Pulau Poteran atau jam kunjungan ziarah.
 
 ## 8. Makam Sunan Ampel
-
+![Makam Sunan Ampel](./mdr1.jpg)
 Tujuan Terakhir adalah makam sunan ampel yang ada di surabaya, tentu bagi kalian yang suka wisata religi di jawa khusus nya di jawa timur tentu makam sunan ampel ini banyak di kunjungi para peziarah dari penjuru kota. 
 
 Makam Sunan ampel ini tidak pernah sepi dari para peziarah srtiap hari nya. 
