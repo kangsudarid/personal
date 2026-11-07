@@ -19,6 +19,8 @@ Membayar kursi dengan harga 150 ribu tentu sangatlah murah, dari dulu ingin ikut
 
 Selain Jawa saya sendiri juga baru tau kalau di madura ada juga makam para wali yang sering di datengin para perziarah dari jawa. 
 
+## 7 Tempat Ziarah Wali Madura
+
 Di Madura tempat yang di kunjungi adalah :
 
 - Makam Mbah Kholil
@@ -183,3 +185,5 @@ Kompleks Wisata Religi Sunan Ampel terletak di Kecamatan Semampir, Kota Surabaya
 	- Makam Mbah Sonhaji (Mbah Bolong): Dikenal karena karomahnya yang mampu melihat arah kiblat Ka'bah di Mekah secara langsung hanya dengan melubangi dinding masjid.
 - Suasana & Kuliner Kampung Arab: Area di sekitar makam merupakan kawasan cagar budaya "Kampung Arab". Sepanjang koridor masuk, Anda akan melewati pasar tradisional yang menjual busana muslim, kurma, parfum, hingga kuliner khas Timur Tengah dan Yaman.
 
+## Akhir Kata
+Itulah beberapa tempat yang wajib di kunjungi apabila Wisata Raligi ke Madura, ditambah lagi saran dari saya kalau wisata disana lebih baik waktunya dibuat 2 hari 1 malam supaya badan tidak capek juga. 
