@@ -1,5 +1,5 @@
 ---
-title: Wisat Religi ke Madura
+title: Wisat Religi ke Madura 2026
 slug: wisata-religi-madura
 subtitle: Ziarah Makam Wali di Madura 2 Hari 1 Malam
 date: 2026-11-07T12:44:01.000Z
@@ -92,3 +92,29 @@ Sunan Cendana dikenal sebagai ulama besar penyebar Islam di kawasan Madura Barat
 - **Gelar Sunan Cendana**: Nama "Cendana" melekat karena dahulu di sekitar tempat pertapaan dan dakwah beliau di Kwanyar banyak ditumbuhi pohon cendana yang mengeluarkan aroma sangat wangi.
 - **Garis Keturunan Ningrat**: Beliau merupakan cucu dari Sunan Kudus (Jafar Sadiq) dari jalur sang ayah. Sementara ibunya adalah keturunan dari Kerajaan Mataram Islam.
 - **Pelarian Spiritual**: Dikisahkan bahwa beliau pergi ke Madura untuk menghindari pergolakan politik dan kekejaman Sultan Amangkurat I di Jawa. Di Madura, beliau memfokuskan hidupnya untuk menyebarkan syiar Islam hingga wafat dan dimakamkan di Kwanyar.
+
+
+## 5. Persarean Batu Ampar
+
+Selanjunya adalah Persarean Batu Ampar yang di kunjungi, karena tempatnya jauh jadi di tempat ini pas magrib, Jika kesini disaran kan untuk naik ojek karena berjalan ke makam nya lumayan jauh. 
+
+Pesarean Batu Ampar (Makam Wali Batu Ampar Barat) adalah salah satu kompleks pemakaman religi paling keramat dan legendaris di Pulau Madura. Kompleks makam kuno ini terletak di Dusun Batu Ampar, Desa Pangbatok, Kecamatan Proppo, Kabupaten Pamekasan.
+
+Berbeda dengan makam-makam sebelumnya yang berada di Bangkalan (Madura Barat), Batu Ampar terletak di Madura Tengah dan menjadi pusat ziarah spiritual yang menyedot jutaan umat Islam dari berbagai daerah.
+
+
+### Kompleks 6 Makam Wali Allah
+
+Di dalam komplek pesarean ini, terdapat makam para ulama dan buju' (buyut) penyebar Islam yang terikat dalam satu garis keturunan. Tokoh yang paling masyhur di antaranya:
+
+1.  (Syekh Abdul Manan) — Ulama perintis dan salah satu tokoh utama dari silsilah Wali Batu Ampar.
+2. Buju’ Tumpeng (Syekh Muhammad Syamsuddin) — Putra dari Buju' Abdul Manan, dikenal dengan julukan ini karena keteguhannya dalam bertapa/tirakat demi umat.
+3.  (Syekh Arif) — Cucu dari Buju' Abdul Manan, diberi julukan Lattong (kotoran sapi) karena karomah beliau yang mampu menyembunyikan identitas spiritualnya agar tidak pamer di hadapan manusia.
+Para ulama Batu Ampar ini juga merupakan leluhur dari banyak kiai besar di Jawa Timur, termasuk para pendiri pondok pesantren legendaris di Madura.
+
+### Asal-Usul Nama & Tradisi Ziarah
+
+- Arti Nama: Nama Batu Ampar berasal dari bahasa Madura yang berarti batu yang menghampar atau membentang, merujuk pada kondisi geografis perbukitan batu di sekitar lokasi pertapaan para pemuka agama tersebut,
+- Keunikan Spritual Khataman: Situs religi ini terkenal sebagai tempat berkumpulnya jutaan umat yang melakukan khataman Al-Qur'an. Kompleks ini juga pernah menjadi tempat ziarah dan iktikaf favorit dari Presiden RI ke-4, KH. Abdurrahman Wahid (Gus Dur).
+
+
