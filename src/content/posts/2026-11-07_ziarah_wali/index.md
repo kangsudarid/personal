@@ -72,10 +72,23 @@ Makam Aer Mata Ibu (sering disebut Aermata Ebu atau Pasarean Ratu Ibu) adalah ko
 ### Asal-Usul Nama & Legenda Ratu Ibu
 
 Nama "Aer Mata Ibu" merujuk pada kisah pilu Syarifah Ambami (Ratu Ibu), keturunan Sunan Giri yang menjadi permaisuri Raden Praseno (Panembahan Cakraningrat I).
-- Pertapaan Ratu Ibu: Karena suaminya sering bertugas di Kerajaan Mataram, Ratu Ibu menghabiskan waktu bertapa di Arosbaya guna mendoakan agar keturunannya kelak dipercaya menjadi penguasa Madura hingga 7 turunan.
-- Kemarahan Sang Raja: Saat mendengar cerita tersebut, Cakraningrat I justru kecewa. Beliau berharap kepemimpinan itu bertahan selamanya, bukan dibatasi hanya sampai 7 turunan.
-- Tangisan Abadi: Merasa sangat bersalah dan sedih atas kekecewaan suaminya, Ratu Ibu kembali bertapa sambil terus-menerus menangis memohon ampunan, hingga air matanya membanjiri tempat pertapaan tersebut sampai beliau wafat.
+
+- **Pertapaan Ratu Ibu**: Karena suaminya sering bertugas di Kerajaan Mataram, Ratu Ibu menghabiskan waktu bertapa di Arosbaya guna mendoakan agar keturunannya kelak dipercaya menjadi penguasa Madura hingga 7 turunan.
+- **Kemarahan Sang Raja**: Saat mendengar cerita tersebut, Cakraningrat I justru kecewa. Beliau berharap kepemimpinan itu bertahan selamanya, bukan dibatasi hanya sampai 7 turunan.
+- **Tangisan Abadi**: Merasa sangat bersalah dan sedih atas kekecewaan suaminya, Ratu Ibu kembali bertapa sambil terus-menerus menangis memohon ampunan, hingga air matanya membanjiri tempat pertapaan tersebut sampai beliau wafat.
 
 Jika kalian disini tentu harus jaga uang kalian karena disini banyak sekali pengemis yang mana apabila kalian kasih akan ikuti kalian terus. 
 
 Jadi lebih baik tidak usah beri uang, lebih baik uang kalian kasih aja ke kotak amal yang ada disana dan membeli air yang ada disana dengan harga 5 ribu rupiah sebotol nya. 
+
+## 4. Makam Sunan Cendana
+Makam Sunan Cendana (Syekh Zainal Abidin atau Pangeran Purna Jiwa) merupakan salah satu destinasi ziarah Wali legendaris di Madura. Kompleks pemakaman kuno ini terletak di Desa Ketetang, Kecamatan Kwanyar, Kabupaten Bangkalan.
+
+Sunan Cendana dikenal sebagai ulama besar penyebar Islam di kawasan Madura Barat serta leluhur dari banyak ulama terkemuka di Madura dan Jawa Timur, termasuk masih memiliki garis keturunan dengan Syaikhona Kholil Bangkalan.
+
+
+### Asal-Usul Nama & Sejarah
+
+- **Gelar Sunan Cendana**: Nama "Cendana" melekat karena dahulu di sekitar tempat pertapaan dan dakwah beliau di Kwanyar banyak ditumbuhi pohon cendana yang mengeluarkan aroma sangat wangi.
+- **Garis Keturunan Ningrat**: Beliau merupakan cucu dari Sunan Kudus (Jafar Sadiq) dari jalur sang ayah. Sementara ibunya adalah keturunan dari Kerajaan Mataram Islam.
+- **Pelarian Spiritual**: Dikisahkan bahwa beliau pergi ke Madura untuk menghindari pergolakan politik dan kekejaman Sultan Amangkurat I di Jawa. Di Madura, beliau memfokuskan hidupnya untuk menyebarkan syiar Islam hingga wafat dan dimakamkan di Kwanyar.
