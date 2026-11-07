@@ -1,5 +1,5 @@
 ---
-title: Wisat Religi ke Madura 2026
+title: Wisata Religi ke Madura 2026
 slug: wisata-religi-madura
 subtitle: Ziarah Makam Wali di Madura 2 Hari 1 Malam
 date: 2026-11-07T12:44:01.000Z
