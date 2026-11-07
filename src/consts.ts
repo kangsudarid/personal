@@ -2,11 +2,11 @@
 // You can import this data from anywhere in your site by using the `import` keyword.
 
 // TODO: updated with actual site data
-export const SITE_DOMAIN = 'www.sudarblogger.web.id'
+export const SITE_DOMAIN = 'www.sudarblogger.com'
 export const SITE_URL = `https://${SITE_DOMAIN}`
 export const SITE_AUTHOR = 'Nauval Sudarmanto'
 export const SITE_TITLE = 'Sudar Blogger'
-export const SITE_DESCRIPTION = 'Life a Jurnal Sudarmanto'
+export const SITE_DESCRIPTION = 'The Jurnal Sudarmanto'
 export const SOCIALS = [
   { title: 'BlueSky', url: 'https://bsky.app/profile/loige.co' },
   { title: 'X (Twitter)', url: 'https://twitter.com/loige' },
