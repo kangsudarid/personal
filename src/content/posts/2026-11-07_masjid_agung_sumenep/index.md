@@ -1,7 +1,7 @@
 ---
 title: Keindahan Masjid Agung Sumenep Madura
 slug: masjid-agung-sumenep
-subtitle: Masjid Agung Sumenep: Simbol Harmoni 4 Budaya di Jantung Madura
+subtitle: Masjid Agung Sumenep, Simbol Harmoni 4 Budaya di Jantung Madura
 date: 2026-11-07T15:54:01.000Z
 updated: 2026-11-07T15:54:01.000Z
 header_img: ./sumenep.jpg
