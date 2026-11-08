@@ -16,6 +16,7 @@ description: Kabupaten Sumenep yang terletak di ujung timur Pulau Madura tidak h
 Karena Wisata Religi di Madura itu 2 Hari 1 Malam jadi rombangan memilih mengenap di Masjid Agung Sumenep untuk istirahat supaya besok tidak kecapek an saat melanjutkan perjalan nya. 
 
 Kabupaten Sumenep yang terletak di ujung timur Pulau Madura tidak hanya terkenal dengan pesona pantai dan budayanya yang kental. Di pusat kotanya, berdiri sebuah mahakarya arsitektur yang menjadi saksi bisu kejayaan masa lalu sekaligus simbol toleransi yang kuat: Masjid Agung Jamik Sumenep.
+
 Bukan sekadar tempat ibadah biasa, masjid yang berada tepat di depan  ini merupakan salah satu masjid tertua dan paling ikonik di Indonesia, yang memikat siapa saja lewat perpaduan seni bangunannya yang unik.
 
 ## Sejarah Singkat Pembangunan
@@ -34,12 +35,14 @@ Keunikan utama yang membuat Masjid Agung Sumenep begitu tersohor adalah arsitekt
 ## Peninggalan Kuno yang Tetap Terjaga
 
 Selain keindahan arsitekturnya, kompleks masjid ini juga menyimpan beberapa peninggalan bersejarah yang bernilai tinggi. Di antaranya adalah sebuah jam dinding mekanik kuno berukuran besar hadiah dari pemerintah kolonial Belanda yang dipasang di bagian dalam gerbang utama.
+
 Selain itu, di halaman depan masjid ditanami pohon sawo kecik dan pohon tanjung. Penanaman pohon ini bukan tanpa alasan, melainkan sebuah filosofi Jawa agar para jamaah selalu memelihara kebaikan (sarwo becik) dan menjunjung tinggi nilai-nilai luhur agama.
 
 ## Destinasi Wisata Religi dan Sejarah yang Strategis
 
 Bagi para wisatawan, Masjid Agung Sumenep adalah destinasi yang wajib dikunjungi. Lokasinya yang sangat strategis membuatnya terhubung langsung dengan Keraton Sumenep (Museum Kesultanan) yang hanya berjarak beberapa ratus meter saja. Anda bisa dengan mudah menjelajahi kawasan bersejarah ini cukup dengan berjalan kaki.
+
 Masjid ini beroperasi 24 jam untuk aktivitas ibadah. Waktu terbaik untuk mengagumi keindahan arsitekturnya adalah saat pagi hari ketika matahari terbit atau menjelang sore hari (golden hour), di mana pantulan cahaya matahari membuat warna kuning emas gerbang masjid terlihat sangat hidup dan menakjubkan. 
 
-Akhir Kata
-Itulah beberapa sejarah Masjid Agung Sumenep, banyak sejarah dan peninggalan di masjid tersebut. 
+## Akhir Kata
+Itulah beberapa sejarah Masjid Agung Sumenep, banyak sejarah dan peninggalan di masjid tersebut. Di Masjid ini pas di depan alun - alun sumenep jadi tidak pernah sepi oleh pengunjung namun penjagaan di masjid tersebut juga ketat oleh pengurus masjid tersebut. 
